@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rishinderkumar
 - 👀 I’m interested in Software Development, Data Engineering, Science and Technology
-- 🌱 I’m currently learning Apache Oozie
+- 🌱 I’m currently learning THE WORLD!! :D
 - 💞️ I’m looking to collaborate on - Currently unavailable
 - 📫 How to reach me - drop me an email @rishinder.bodigum@outlook.com
 
